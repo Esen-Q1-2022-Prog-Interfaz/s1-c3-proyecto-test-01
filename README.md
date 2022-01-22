@@ -6,3 +6,5 @@ hola a todos
 estoy bien aca en el amazonas con hambre
 
 wey acabo de ver una anaconda enorme :o :o
+
+viendo el amanecer
